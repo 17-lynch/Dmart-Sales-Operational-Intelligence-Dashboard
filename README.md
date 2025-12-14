@@ -189,5 +189,7 @@ This dashboard helps stakeholders to:
 - Make **data-driven strategic decisions**
 
 ---
+🤝 Connect With Me
 
+📧 Email: adeshpagar09@gmail.com
 
